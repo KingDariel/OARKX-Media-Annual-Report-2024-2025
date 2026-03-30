@@ -45,7 +45,7 @@ The company's operations yielded substantial measurable impacts across its vario
 | **Marketing Campaigns** | Over 50 campaigns executed successfully. |
 | **Client Base** | More than 20 active clients across local and international markets. |
 | **Audience Engagement** | Over 5,000 participants engaged on the interactive quiz platform. |
-| **Creative Support** | More than 30 artists supported through the OARKX Music Studio. |
+| **Creative Support** | More than 25 artists including Underground artists supported through the OARKX Music Studio. |
 | **Content Production** | Over 10 professional podcast productions completed. |
 | **Tech Education** | More than 25 students trained in coding and programming. |
 
