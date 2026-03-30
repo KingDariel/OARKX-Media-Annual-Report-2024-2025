@@ -17,12 +17,13 @@ OARKX Media is a Ghana-based digital media and technology company with a diversi
 | **OARKX Tech Studio** | An educational division focused on training aspiring tech professionals in coding, programming, and digital skills through practical, hands-on learning. |
 | **OARKX Build (Upcoming)** | Focuses on building luxury houses and mansions with a digital face for global stakeholders, offering high-end real estate and digital construction solutions. |
 | **OARKX NEWS** | A platform for sharing the latest and authentic news, publicly and among subscribers on the OARKX app. |
+| **OARKX Farm** | Utilizes large acres of land for the plantation of vegetables and other yielding products, promoting youth employment and alleviating government stress. |
 
 ## Key Achievements (2024–2025)
 
 During the 2024–2025 period, OARKX Media demonstrated significant business growth by expanding its client base across Ghana and international markets. The company strengthened relationships with startups, SMEs, and digital brands, which substantially increased its brand visibility and digital presence.
 
-In terms of ecosystem expansion, OARKX Media successfully operated its Music Studio, resulting in growing creative output. The company also built and engaged a loyal audience via its interactive quiz platform, launched podcast production services, and introduced tech training programs for aspiring developers. Furthermore, advanced planning for the upcoming OARKX Build division was completed.
+In terms of ecosystem expansion, OARKX Media successfully operated its Music Studio, resulting in growing creative output. The company also built and engaged a loyal audience via its interactive quiz platform, launched podcast production services, and introduced tech training programs for aspiring developers. Furthermore, advanced planning for the upcoming OARKX Build division was completed, and the establishment of OARKX Farm has already begun to promote youth employment and contribute to national food security.
 
 Marketing performance saw notable improvements, with the execution of high-performing digital campaigns that improved the return on investment (ROI) for multiple clients. These efforts led to increased engagement, reach, and conversion rates across various digital channels.
 
