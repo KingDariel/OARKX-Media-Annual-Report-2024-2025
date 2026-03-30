@@ -15,7 +15,7 @@ OARKX Media is a Ghana-based digital media and technology company with a diversi
 | **OARKX Interactive Platform** | A gamified engagement system where audiences participate in quizzes, competitions, and reward-based activities to win prizes and recognition. |
 | **OARKX Podcast Studio** | A professional environment for podcast recording, storytelling, interviews, and industry discussions. |
 | **OARKX Tech Studio** | An educational division focused on training aspiring tech professionals in coding, programming, and digital skills through practical, hands-on learning. |
-| **OARKX Build (Upcoming)** | A product development division aimed at building scalable digital platforms and innovative tech solutions. |
+| **OARKX Build (Upcoming)** | Focuses on building luxury houses and mansions with a digital face for global stakeholders, offering high-end real estate and digital construction solutions. |
 | **OARKX NEWS** | A platform for sharing the latest and authentic news, publicly and among subscribers on the OARKX app. |
 
 ## Key Achievements (2024–2025)
