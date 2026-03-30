@@ -16,6 +16,7 @@ OARKX Media is a Ghana-based digital media and technology company with a diversi
 | **OARKX Podcast Studio** | A professional environment for podcast recording, storytelling, interviews, and industry discussions. |
 | **OARKX Tech Studio** | An educational division focused on training aspiring tech professionals in coding, programming, and digital skills through practical, hands-on learning. |
 | **OARKX Build (Upcoming)** | A product development division aimed at building scalable digital platforms and innovative tech solutions. |
+| **OARKX NEWS** | A platform for sharing the latest and authentic news, publicly and among subscribers on the OARKX app. |
 
 ## Key Achievements (2024–2025)
 
@@ -67,7 +68,7 @@ Looking ahead, OARKX Media plans to expand further into global markets and offic
 
 ## Conclusion
 
-OARKX Media has demonstrated strong growth, innovation, and adaptability throughout the 2024–2025 fiscal year. With its expanding ecosystem and forward-thinking strategy, the company is well-positioned to become a leading force in digital marketing, media, and technology both in Ghana and internationally.
+OARKX Media has demonstrated strong growth, innovation, and adaptability throughout the 2024–2025 fiscal year. With its expanding ecosystem, including the newly introduced OARKX NEWS, and forward-thinking strategy, the company is well-positioned to become a leading force in digital marketing, media, and technology both in Ghana and internationally. It's an amazing feeling to be part of this growing umbrella company that has just come into the system.
 
 ---
 
